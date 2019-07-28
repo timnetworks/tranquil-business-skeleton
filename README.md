@@ -91,4 +91,8 @@ If you would like to meet in person after the intial phone call we are in Knoxvi
  
 ## Cancellation Policy:
 
-Appointment: Cancellations  should be communicated 3 days before your initial call or visit, this allows me to get other clients in. If you no call/no show, (or fail to observe the 3 day cancellation policy) to your call you forefit that time and it will count towards your monthly calls. 
+Appointment: Cancellations  should be communicated 3 days before your initial call or visit, this allows me to get other clients in. If you no call/no show, (or fail to observe the 3 day cancellation policy) to your call you forefit that time and it will count towards your monthly calls.
+
+tranquilbusinesssolutions@gmail.com
+
++1 (484) 469-8663
